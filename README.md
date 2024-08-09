@@ -5,7 +5,7 @@ I enjoy learning fast-changing data related technologies. 🤩<br>
 For Coffee Chat, please contact email or Linkedin.<br>
 If you would like to know more about me, refer to my portfolio.<br><br>
 
-#Career<br>
+# Career<br>
 Shinhan Bank 2019. 08 ~ ing<br>
 Thank you for visiting my github profile. Have a nice day :)<br>
 
